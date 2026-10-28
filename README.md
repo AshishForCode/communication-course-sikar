@@ -7,7 +7,7 @@ Official landing page for the **Communication Training Program** in Sikar (Rajas
 
 ## 📍 Training Center Location
 Aussie Group Study Abroad, Piprali Road, Sikar (Raj.)
-[View on Google Maps](https://maps.app.goo.gl/ZLJMKUb5SuDxeR8VA)
+[View on Google Maps](https://www.google.com/maps/search/?api=1&query=Aussie+Group+Study+Abroad+Piprali+Road+Sikar)
 
 ## 📞 Admissions & Contact
 - Phone / WhatsApp: **+91 92521 31901**
