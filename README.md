@@ -6,7 +6,8 @@ Official landing page for the **Communication Training Program** in Sikar (Rajas
 - 🚀 **M2M (Mindset to Mastery)** — A comprehensive communication, public speaking, and personality development program.
 
 ## 📍 Training Center Location
-In front of Allen Coaching Sikar, near Piprali Mode, Piprali Road, Sikar (Raj.)
+Aussie Group Study Abroad, Piprali Road, Sikar (Raj.)
+[View on Google Maps](https://maps.app.goo.gl/ZLJMKUb5SuDxeR8VA)
 
 ## 📞 Admissions & Contact
 - Phone / WhatsApp: **+91 92521 31901**
